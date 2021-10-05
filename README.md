@@ -1,4 +1,4 @@
-- 👋 Cześć, Jestem @nutlusieekk.
+- 👋 Cześć, Jestem Anonim
 - 👀 I koniec wiecej nie napisze XDDDD
 - 🌱 koniec lol
 
