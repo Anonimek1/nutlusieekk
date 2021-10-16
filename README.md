@@ -1,4 +1,4 @@
-- 👋 Cześć, Jestem Anonim
-- 👀 I koniec wiecej nie napisze XDDDD
-- 🌱 koniec lol
+- 👋 Hi, i'm Anonimek
+- 👀 End
+- 🌱 XD
 
